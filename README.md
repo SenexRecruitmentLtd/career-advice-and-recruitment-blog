@@ -3,6 +3,10 @@
 
 Welcome to the Senex Recruitment careers resource hub.
 
+Explore the latest career advice, recruitment insights and STEM industry updates:
+
+👉 https://www.senexrecruitment.com/careers-and-recruitment-blog/
+
 ## Browse Topics
 
 ### Job Search Strategies
