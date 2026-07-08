@@ -5,6 +5,10 @@ Welcome to our Job Search Strategies section.
 
 Whether you're actively looking for a new role or simply considering your next career move, effective job searching requires a clear plan and the right approach.
 
+For additional articles, expert guidance and recruitment insights, visit our dedicated Job Search Strategies page on the Senex Recruitment website.
+
+👉 https://senexrecruitment.com/careers-and-recruitment-blog/candidates-job-search-tips/
+
 ## Topics Covered
 
 ### Knowing When It’s Time to Move On
