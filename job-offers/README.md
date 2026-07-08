@@ -5,6 +5,10 @@ Receiving and evaluating a job offer is one of the most important stages of the 
 
 This section provides practical advice to help you make informed decisions and start your new role successfully.
 
+For detailed guidance on evaluating offers, negotiating salaries and preparing for a new position, visit our dedicated Job Offers and Starting a New Role page
+
+👉 https://senexrecruitment.com/careers-and-recruitment-blog/job-offers-starting-your-new-job/
+
 ## Topics Covered
 
 ### Evaluating Job Offers
