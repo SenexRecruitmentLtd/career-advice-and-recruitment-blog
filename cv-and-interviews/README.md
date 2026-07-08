@@ -5,6 +5,10 @@ Your CV and interview performance play a crucial role in securing your next oppo
 
 This section provides practical guidance for professionals working in Science, Engineering and Manufacturing.
 
+For additional guidance, practical tips and detailed articles, visit our dedicated CV and Interview Preparation page on the Senex Recruitment website.
+
+https://senexrecruitment.com/careers-and-recruitment-blog/candidates-cv-interview-preparation-careers-advice/
+
 ## Topics Covered
 
 ### Creating a Strong CV
