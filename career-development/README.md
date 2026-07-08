@@ -5,6 +5,12 @@ Successful careers are built through continuous learning, planning and adaptatio
 
 This section provides guidance to support long-term career development in Science, Engineering and Manufacturing.
 
+
+For career planning insights, market intelligence and industry updates, visit our dedicated Career Development and Market Insights page.
+
+👉 https://senexrecruitment.com/careers-and-recruitment-blog/career-development-and-planning/
+
+
 ## Topics Covered
 
 ### Career Planning
